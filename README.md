@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @jonathanghunyi
+- 👋 Hi, my name is Jonathan Yi
 - 👀 I’m interested in all things computer related
 - 📫 Email me (jonathanghunyi@gmail.com) or visit my LinkedIn page (https://www.linkedin.com/in/jonathan-g-yi/)
 
